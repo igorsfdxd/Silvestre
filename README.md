@@ -1,0 +1,1 @@
+Esse curso oferecido pela Gama Academy, está sensacional!
